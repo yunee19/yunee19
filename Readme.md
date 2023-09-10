@@ -1,0 +1,1 @@
+I'm Nguyen Thi Dung . You can call me Yung.I major in Computer Science and Engineering at SeoulTech.
